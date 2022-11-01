@@ -1,2 +1,3 @@
 # secret-message
-not a scam kid
+
+only for yuji hehe
